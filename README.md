@@ -1,2 +1,9 @@
-Thanks for viewing my external cheat: Xenith is a trusted external by 500+ people. Sorry that this github doesnt look trusting its my first time using it, If you download Xenith from our website
-and have any problems please make a ticket on Xeniths discord. Link is in the file above this one
+**Welcome to Xenith**
+Thanks for viewing our github, for a while now me and my team have been working on a **External roblox cheat, that doesnt run slow on older computers**
+We have tried other cheats like aimmy, Nezur and all they did was lag our pcs or lag onto a wall. We **Strongly believe at Xenith** that this may be
+the best free external roblox cheat you can get at the moment!! **Please take notice we have loads of updates to come** please download Xenith on our website
+
+**Website:** https://www.xenithexternal.com
+**Discord:** https://discord.gg/GnyMhnsUjS
+
+We also have a youtube channel, to find it search Xenith external on youtube. **Thanks for your time**
