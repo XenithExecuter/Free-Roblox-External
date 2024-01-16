@@ -7,3 +7,13 @@ the best free external roblox cheat you can get at the moment!! **Please take no
 **Discord:** https://discord.gg/GnyMhnsUjS
 
 We also have a youtube channel, to find it search Xenith external on youtube. **Thanks for your time**
+
+
+**What makes Xenith better then other externals you may ask:**
+
+**1). Xenith is not an ai Aimbot it uses shapes and colors.**
+**2). We have one of the best triggerbots you can get.**
+**3). We have 2 esp modules**
+**4). And a bunch of uessless stuff thats cool!**
+
+**ALSO IF YOU SCAN XENITH ON ANY VIRUSTOTAL OR ANYTHING IT WILL COME UP WITH 0 VIRUSES.**
